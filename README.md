@@ -1,4 +1,4 @@
-### Hellooo, everyone 👋
+### Hi 👋
 
 ### I'm Carol and it's nice to have you here!
 
